@@ -17,3 +17,4 @@ _IM SUPER COOl_
 
 _ha ha ha_
 </footer>
+_Loser_
